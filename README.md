@@ -13,21 +13,21 @@ Group Members
 
 2. Abraham Kibichii – BSCCS/2025/39564 
 
-3. Natasha Mudavali  BSCCS/2025/41200 
+3. Natasha Mudavali -BSCCS/2025/41200 
 
-4. Mohamed Amin BSCCS/2025/41039 
+4. Mohamed Amin - BSCCS/2025/41039 
 
-5. John Timothy BSCCS/2025/35868 
+5. John Timothy -  BSCCS/2025/35868 
 
-6. Cliff Darren BSCCS/2025/42307 
+6. Cliff Darren - BSCCS/2025/42307 
 
-7. Gerald Wachira BSCCS/2025/40699 
+7. Gerald Wachira -  BSCCS/2025/40699 
 
-8. Esther BSCCS/2025/39862 
+8. Esther - BSCCS/2025/39862 
 
-9. Franklin Njenga BSCCS/2025/40683 
+9. Franklin Njenga -BSCCS/2025/40683 
 
-10. Lewis Thegetha BSCCS/2025/69379 
+10. Lewis Thegetha -BSCCS/2025/69379 
 
  
 
